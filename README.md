@@ -119,7 +119,9 @@ ELA is not a symptom but a process of psychic reorganization. It signals:
 
 •	emergence of archaic layers of the self
 
-•	the need for containment rather than interpretation The analyst’s task is to listen to:
+•	the need for containment rather than interpretation 
+
+The analyst’s task is to listen to:
 
 •	rhythm
 
