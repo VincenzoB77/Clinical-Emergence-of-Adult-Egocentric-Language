@@ -1,7 +1,9 @@
 The Clinical Emergence of Egocentric
 Language in the Adult: A Phenomenological and Analytical Perspective
 
-Dr. Vincenzo Bumbalo, MD Analytical Psychotherapist · Jungian-oriented Psychoanalyst Clinical Phenomenologist Independent Researcher in Psychology and Linguistics Developer of the Bumbalo Model of Egocentric Language Clifton Park, New York State, USA
+Dr. Vincenzo Bumbalo, MD Analytical Psychotherapist · Jungian-oriented Psychoanalyst Clinical Phenomenologist Independent Researcher in Psychology and Linguistics Developer of the Bumbalo Model of Egocentric Language 
+
+Clifton Park, New York State, USA
 
 About the Author
 
